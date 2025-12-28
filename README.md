@@ -10,7 +10,7 @@ Bachelor, Computer Science
 
 Associate, Computer Systems Networking & Telecommunications
 
-Hobbies: Reading, Writing, Mountain Biking, Snowboarding
+Hobbies: Reading, Writing, Mountain Biking, Hiking, Snowboarding
 
 Favorite authors: Phillip K Dick, Gene Wolfe, Frank Herbert, Isaac Asimov
 
