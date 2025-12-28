@@ -17,6 +17,3 @@ Hobbies: Reading, Writing, Mountain Biking, Hiking, Snowboarding
 Favorite authors: Phillip K Dick, Gene Wolfe, Frank Herbert, Isaac Asimov
 
 Favorite video games: Bloodborne, Deadlock, ARC Raiders
-
-
-djenntt@gmail.com
