@@ -10,6 +10,8 @@ Bachelor, Computer Science
 
 Associate, Computer Systems Networking & Telecommunications
 
+Countries I've visited: Mexico, Canada, Philippines, Cambodia, Ukraine, Germany, Iceland
+
 Hobbies: Reading, Writing, Mountain Biking, Hiking, Snowboarding
 
 Favorite authors: Phillip K Dick, Gene Wolfe, Frank Herbert, Isaac Asimov
