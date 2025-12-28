@@ -10,7 +10,7 @@ Bachelor, Computer Science
 
 Associate, Computer Systems Networking & Telecommunications
 
-Countries I've visited: Mexico, Canada, Philippines, Cambodia, Ukraine, Germany, Iceland
+Countries I've visited: Mexico, Canada, Philippines, Cambodia, Ukraine, Germany, Iceland, Fiji
 
 Hobbies: Reading, Writing, Mountain Biking, Hiking, Snowboarding
 
