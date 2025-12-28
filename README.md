@@ -4,10 +4,6 @@ I am currently lead the Development Team @ Mango Machine.
 
 I recently joined CTRL Freaks as a local Software Technician.
 
-Always working, and always looking for more work.
-
-Hire me to build your website, or hire me to fix your computer.
-
 Bachelor, Computer Science
 
 Associate, Computer Systems Networking & Telecommunications
