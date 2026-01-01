@@ -1,6 +1,6 @@
 I've worked for WompMobile, Tragic Media, and Fuzzco.
 
-Work: Yale Locks, Zales, Carved, Drivey, 7Shifts, nZero, OMX Ventures, Sweep, Ramp, Figma, Covariant, Mango Machine, CTRL Freaks, Rambutan, and others
+Companies I've contributed to: Yale Locks, Zales, Carved, Drivey, 7Shifts, nZero, OMX Ventures, Sweep, Ramp, Figma, Covariant, Mango Machine, CTRL Freaks, Rambutan, and others
 
 I am currently lead the Development Team @ Mango Machine.
 
